@@ -1,1 +1,1 @@
-Check on [amazon.jakbyco.com](https://amazon.jakbyco.com)
+Check on [amazon.jakbyco.com](http://amazon.jakbyco.com)
